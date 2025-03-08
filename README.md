@@ -1,3 +1,4 @@
+# Wisewand code promo
 Wisewand se démarque comme l’un des outils d’intelligence artificielle les plus performants pour générer du contenu SEO optimisé. Que vous soyez blogueur, entrepreneur, spécialiste du SEO ou e-commerçant, cet outil vous aide à produire rapidement des textes naturels et captivants. Et la bonne nouvelle, c’est qu’il existe un moyen simple d’économiser **10 % sur chaque achat de crédits Wisewand grâce au code promo FABIEN10**.
 
 ## Comment utiliser le code promo Wisewand FABIEN10 ?
